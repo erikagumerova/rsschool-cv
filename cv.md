@@ -1,2 +1,2 @@
 Erika Gumerova
-erika.gumerova@yandex.ru
+rika.gumerova@gmail.com
